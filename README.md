@@ -1,1 +1,1 @@
-![wifesband.](https://media.discordapp.net/attachments/1118988824870133812/1288718110190469154/fdhdfgd.png?ex=66f633c4&is=66f4e244&hm=289ad05041576a33336fede78caf7e5b6cbbef913cb882ce17774cc7ddb357ba&=&format=webp&quality=lossless)
+![wifesband.](https://raybox.neocities.org/ABABBABA.png)
